@@ -1,3 +1,0 @@
-# False Bottoms
-
-This MusicNft is called “False Bottoms” by Tha4gttn. This nft is an excellent example of orchestration from the artist. Currently this nft is an instrumental. There may be a surprise in store before the drop. Special Guest artist maybe…
